@@ -1,3 +1,3 @@
-** A Readme File ** Last Update Date: Aug-09-20
+** A Readme File ** Last Update Date: Aug-09-20.
 
-Few Nice Words From IT Partners working in Assignments.
+Few Nice Words(attached Emails) From IT Partners working in Assignments.
